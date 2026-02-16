@@ -1,0 +1,1 @@
+# seminar_task_team_20_trading
